@@ -3,7 +3,7 @@ The Prairie.
 ============
 
 
-To scan the lines of his face, or feel the scars on the head of this Leviathan;
+To scan the lines of and across his face, or feel the scars on the head of this Leviathan;
 this is a thing which no Physiognomist or Phrenologist has as yet undertaken.
 Such an enterprise would seem almost as hopeful as for Lavater to have
 scrutinized the wrinkles on the Rock of Gibraltar, or for Gall to have mounted
